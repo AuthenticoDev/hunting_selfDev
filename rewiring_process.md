@@ -29,3 +29,12 @@ Did that over and over again, after some days or weeks (don't remmeber) it was i
 It was part of a open-source self-development project. 
 Sadly the world was incredibly busy with denying, suppressing and harming me, so it's first now (2025) I'm able to bring it to the world.
 Did try sharing it along the way, but largely it seemed to be ignored.
+
+*Project notes:*
+- It's fun
+- Renders service
+- Can be done from the couch - I even went to a jungle-area on a different continent across a vast ocean
+
+I realized over time that it unlocks the hunting-capacities of all life to be able to produce value at an objective metaphysical level; thus position as a pathway for fulfillment (like a company) and invite demand for continuation. May be a real approach to solving climate crises etc.; while of course there's the likelihood it'll be misused by oppressive pandemic (negative labeling, systematized denial and cannibalizing on near and dear, drugging away natural resolvence, positioning as pathway for healing that'd be there in a better form and so on .. + intensifying consumption, misleading of society and so on) < hunt: Sounds like something dislikable? Well it hurt me and everything I would have loved a lot.
+
+Note that "adventure"-like computer-games and such; this basically unlocks that. It's simple: The hunts are nourishing, and targeting surface-manifestations of the drains yields ingredients of sorts. Ingredients that very much can be turned into value. Just gotta be careful to not incidentally be tricked by fate-shapings craving precedence (dependency: fate-awareness: Events unfolding as a product of parts) to extract methods, knowledge and similar - without that being misused to hinder targeting intense wrongs. Definitely can grow in skill, capacity and "level up"; note that to differ, these drains are very real, and incredibly hungry for fulfillment, which can get slightly dangerous. Some evil things don't like being seen, just a heads up.
