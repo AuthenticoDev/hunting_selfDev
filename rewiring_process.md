@@ -1,8 +1,8 @@
-*Origin*
+### Origin
 I felt like the hunting instinct was being wasted. A capacity refined over millions of years, and what did I use it for? Going to the market and getting a cheap deal? 
 Perhaps I'd go with a gun and shoot some innocent creature, without any real reason (it's like disrepecting the hunting instinct).
 
-*Rechanneling*
+### Rechanneling
 So, I figured maybe I could rechannel it; recycling the instinct itself, utilizing a few simple techniques.
 I tried it, and it worked wonders, never stopped hunting since - it is very useful and nourishing too; incredibly gratifying.
 
@@ -20,17 +20,17 @@ I wondered what might align; and figured there were things causing immense negat
 - Balance
 - Nourishment (learning, skill, growth, awareness, applicable knowledge, etc.)
 
-*Actively performing the rewiring*
+#### Actively performing the rewiring
 The way to perform the rewiring is simple: Repetition.
 I just began tracing the vast drains, evaluating these and then found some way to process it (grew aware of it, talked about it - shaped awareness and desire to mitigate). 
 Did that over and over again, after some days or weeks (don't remmeber) it was ingrained and it became self-reinforcing.f
 
-*Post-story*
+#### Post-story
 It was part of a open-source self-development project. 
 Sadly the world was incredibly busy with denying, suppressing and harming me, so it's first now (2025) I'm able to bring it to the world.
 Did try sharing it along the way, but largely it seemed to be ignored.
 
-*Project notes:*
+###### ***Project notes:***
 - It's fun
 - Renders service
 - Can be done from the couch - I even went to a jungle-area on a different continent across a vast ocean
